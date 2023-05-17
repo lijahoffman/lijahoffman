@@ -1,10 +1,12 @@
-### Hi there 👋 My name is Lija. 
+## Hi there 👋 My name is Lija. 
 
-## I use data-driven approaches to explore the things that make me feel fulfilled ✨ I ...
+### I use data-driven approaches to explore the things that make me feel fulfilled ✨ 
 
-- 🍃 Am passionate about wellness and have a background in Psychology and clinical research.
+#### I ...
 
-- 👡 Have a lifelong love of fashion and believe that it is one of the truest forms of self-expression. I focus on consumer behavior and am particularly interested in the use of of AI and machine learning in trend forecasting. 
+- Am passionate about wellness and have a background in Psychology and clinical research 🍃 🧘🏻‍♀️
+
+- Have a lifelong love of fashion and believe that it is one of the truest forms of self-expression. I focus on consumer behavior and am particularly interested in the use of of AI and machine learning in trend forecasting 👡 👗
 
 
 
