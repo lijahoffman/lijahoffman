@@ -1,8 +1,6 @@
-## Hi there 👋 My name is Lija. 
+## Hi there, I'm Lija 👋 Thanks for stopping by! 
 
-### I use data-driven approaches to explore the things that make me feel fulfilled ✨ 
-
-#### I ...
+### I use data-driven approaches to explore the things that make me feel fulfilled ✨ I...
 
 - Am passionate about wellness and have a background in Psychology and clinical research 🍃 🧘🏻‍♀️
 
