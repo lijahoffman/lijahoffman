@@ -2,7 +2,7 @@
 
 ### I use data-driven approaches to explore the things that make me feel fulfilled ✨ I...
 
-- Am passionate about wellness and have a background in Psychology and am experienced in clinical research/ clinical trial data management 🍃 🧘🏻‍♀️ 
+- Am passionate about wellness and mental health. I have a background in Psychology and am experienced in clinical research/ clinical trial data management 🍃 🧘🏻‍♀️ 
 
 - Have a lifelong love of fashion and believe that it is one of the truest forms of self-expression. I focus on consumer behavior and am particularly interested in the use of of AI and machine learning in trend forecasting 👡 👗
 
